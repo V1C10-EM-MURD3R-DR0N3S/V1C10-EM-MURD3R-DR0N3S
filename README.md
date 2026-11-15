@@ -4,7 +4,7 @@
 
 
 heres my 
-<a href="https://https://sodoidos.atabook.org/">
+<a href="https://sodoidos.atabook.org/">
 atabook :D
 
 
