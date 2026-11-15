@@ -3,6 +3,10 @@
 ✧˚·̩̩̥͙˚̩̥̩̥·̩̩̥͙✧·̩̩̥͙˚̩̥̩̥˚·̩̩̥͙✧  HELLO!!!  ✧˚·̩̩̥͙˚̩̥̩̥·̩̩̥͙✧·̩̩̥͙˚̩̥̩̥˚·̩̩̥͙✧
 
 
+heres my 
+<a href="https://(https://sodoidos.atabook.org/)">
+atabook :D
+
 
 <details>
   <summary>𝓘𝓝𝓕𝓞</summary>
@@ -99,7 +103,18 @@ FOR TEACHING ME!
 
 menção honrosa ao grandioso
 
-<a href="https://github.com/https://github.com/zerstorungswalze">
+<a href="https://github.com/zerstorungswalze">
 <img width="554" height="554" alt="images" src="https://github.com/user-attachments/assets/df6b3fbe-fcff-4b86-8aff-690839696d04" />
+
+</details>
+
+<details>
+  <summary>random thing just to joke lol</summary>
+
+  PARA, SE NAO QUEM VAI EXPLODIR 
+  <a href=https://github.com/Nick383-hi>
+  SEU 
+  
+  MUNDO É EU, VAI SE CAGAFHFHFHFHFH
 
 </details>
