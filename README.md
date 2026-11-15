@@ -41,6 +41,7 @@
   
 </details>
 
+
 <details>
   <summary>ᖴᗩᑎᗪOᗰᔕ</summary>
 
@@ -67,21 +68,25 @@
   - PHANTOM SIITA
 </details>
 
+<img width="120" height="142" alt="images" src="https://github.com/user-attachments/assets/35f1afa3-42d0-4210-aa3b-fc0092ab77b5" />
 
 <details>
   <summary>𝘚𝘱𝘦𝘤𝘪𝘢𝘭 𝘛𝘩𝘢𝘯𝘬𝘴</summary>
 
 <!DOCTYPE html>
 <a href="https://github.com/Verycute0pupp">
-<img width="130" height="199" alt="images" src="https://github.com/user-attachments/assets/23a9c6f6-5a70-48df-bb29-a63ad468ff47" />
+<img width="130" height="199" alt="images" src="https://github.com/user-attachments/assets/23a9c6f6-5a70-48df-bb29-a63ad468ff47" /> 
 
+  
 THANK YOU
 <a href="https://github.com/Verycute0pupp">
 PUM
 
 FOR TEACHING ME!
 
-(click on the blue text or the image idk)
+(click on the blue text or at the gays idk)
+
+<img width="100" height="80" alt="images" src="https://github.com/user-attachments/assets/7cd109f4-d28f-4dbc-8131-4f60c9898d58" />
 
 
 </details>
