@@ -74,6 +74,8 @@ more!
   - ADO
   - GORILLAZ
   - PHANTOM SIITA
+  - ENA
+(adding more when i remember)
 </details>
 
 <img width="120" height="142" alt="images" src="https://github.com/user-attachments/assets/35f1afa3-42d0-4210-aa3b-fc0092ab77b5" />
