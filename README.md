@@ -16,6 +16,10 @@ atabook :D
 
   I love all my coolio friends, mwa to them
 
+heres
+<a href="https://en.pronouns.page/@Lenacey">
+more!
+
   (ALWAYS remember, im addicted to murder drones)
 
 </details>
