@@ -42,31 +42,59 @@
 </details>
 
 <details>
-  <summary>𝙵𝙰𝙽𝙳𝙾𝙼𝚂</summary>
-  
+  <summary>ᖴᗩᑎᗪOᗰᔕ</summary>
+
   - DELTARUNE
   - UNDERTALE
-  - DDLC
-  - BATIM
-  - FNAF
-  - (various kpop groups)
-  - ADO
-  - PHANTOM SIITA
   - GORILLAZ
-  - FNF
-  - TADC
-  - MURDER DRONES(obv)
-  - FUNHOUSE
-  - STOMACH BOOK
-  - YAELOKRE
-  - DIARIES OF AN APOTHECARY
-  - KNY
-  - SAILOR MOON
-  - PUELLA MAGI MADOKA MAGICA
-  - DANDY'S WORLD(i dont support q**l or r*x)
-  - YANDERE SIMULATOR(i dont support yanderedev)
+  - VOCALOID
+  - PJSK
   - CRK
-  - LIMBUS COMPANY
+  - DANDYS WORLD
+  - FUNHOUSE
+  - SALLY FACE
+  - BATIM
+  - FNF
+  - FNAF
+  - MURDER DRONES(obv)
+  - TADC
+  - GASLIGHT DISTRICT
+  - KNIGHTS OF GUINEVERE
+  - BFDI
+  - CUPHEAD
+  - ADO
+  - GORILLAZ
+  - PHANTOM SIITA
+</details>
 
-(adding more when i remember)
 
+<details>
+  <summary>𝘚𝘱𝘦𝘤𝘪𝘢𝘭 𝘛𝘩𝘢𝘯𝘬𝘴</summary>
+
+<!DOCTYPE html>
+<a href="https://github.com/Verycute0pupp">
+<img width="130" height="199" alt="images" src="https://github.com/user-attachments/assets/23a9c6f6-5a70-48df-bb29-a63ad468ff47" />
+
+THANK YOU
+<a href="https://github.com/Verycute0pupp">
+PUM
+
+FOR TEACHING ME!
+
+(click on the blue text or the image idk)
+
+
+</details>
+
+<details>
+  <summary>HONORABLE MENTION</summary>
+
+<img width="800" height="763" alt="images" src="https://github.com/user-attachments/assets/129b536d-bf7c-4d65-b48a-352738c7e937" />
+
+
+menção honrosa ao grandioso
+
+<a href="https://github.com/https://github.com/zerstorungswalze">
+<img width="554" height="554" alt="images" src="https://github.com/user-attachments/assets/df6b3fbe-fcff-4b86-8aff-690839696d04" />
+
+</details>
