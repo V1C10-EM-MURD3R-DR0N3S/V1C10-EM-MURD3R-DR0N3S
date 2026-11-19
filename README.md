@@ -24,6 +24,20 @@ more!
 
 </details>
 
+ <details>
+  <summary>DNI</summary>
+
+- Homophobic
+- Racist
+- Mappride/Zoophile
+- The coffin of andy and leyley fandom
+- Terrible Mouse Fandom
+- Lsp fandom
+- Supports trump/ jeffrey **stein
+- sexist
+ 
+</details>
+
 <details>
   <summary>𝔽𝕀ℂ𝕋𝕀𝕆ℕ𝕂𝕀ℕ𝕊</summary>
   
